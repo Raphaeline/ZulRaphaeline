@@ -1,3 +1,2 @@
-Rickrolled
-
-https://i.imgur.com/JKSIDdm.mp4
+Hello I'm Raphaeline
+Nice to meet you!!
